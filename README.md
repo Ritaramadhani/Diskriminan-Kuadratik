@@ -1,0 +1,1 @@
+# Diskriminan-Kuadratik
